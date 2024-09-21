@@ -51,7 +51,7 @@ We welcome contributions from the community. Please fork the repository and subm
 
 ## Contact
 
-For any inquiries, please contact us at jitendrajasprit2004@gmail.com.
+For any inquiries, please contact us at thakurriya368@gmail.com
 
 
 
